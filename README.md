@@ -6,7 +6,7 @@
 <p dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=" style="max-width: 100%;"></a></p>
 <h3 dir="auto">
 $${\color{grey}⑮}$$ <br/>
-  $${\color{grey}no1ㅤsebstanㅤluvr}$$
+  $${\color{grey}buckyㅤbarnesㅤyume}$$
 <br/>
   <br/>
 <sub> <a href="https://huntingrifle.atabook.org/" rel="nofollow">ATA</a></sub>
