@@ -9,7 +9,7 @@ $${\color{grey}⑮}$$ <br/>
   $${\color{grey}no1ㅤsebstanㅤluvr}$$
 <br/>
   <br/>
-ㅤ <sub> <a href="https://huntingrifle.atabook.org/" rel="nofollow">ATA</a></sub>
+<sub> <a href="https://huntingrifle.atabook.org/" rel="nofollow">ATA</a></sub>
   <br/>
   <br/>
 </table></markdown-accessiblity-table>
